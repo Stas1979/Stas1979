@@ -15,3 +15,4 @@ ___
 ### e-mail: Skail79@mail.ru
 ### Телеграмм: https://t.me/Stanislav_M79
 ---
+![](https://cs10.pikabu.ru/post_img/2018/04/02/9/og_og_1522683410222810777.jpg)
